@@ -1,5 +1,5 @@
 - 👋 Hi, my name is James
-- 🌱 I’m currently learning C Progamming language
+- 🌱 I’m currently learning C Progamming language, Python, and HTML
 - 📫 How to reach me Discord - beefsnot | Snapchat - beef.snot | Email - james@beefsnot.tech | 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈
