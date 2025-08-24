@@ -1,5 +1,5 @@
 - 👋 Hi, my name is James
-- 🌱 I’m currently learning C Progamming language, Python, and HTML, JavaScript, and more
+- 🌱 I’m currently learning, Python, HTML, JavaScript, and more! 
 - 📫 How to reach me Discord - beefsnot | Email - james@jameshamby.me | 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈🏳️‍🌈
